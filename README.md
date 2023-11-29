@@ -1,4 +1,4 @@
-# Welcome to [Ananas Code]'s Tech World! 🚀
+# Welcome to Ananas Code's Tech World! 🚀
 
 Hey, amazing folks! I'm AnanasCode, your friendly neighborhood content creator, and I'm over the moon excited to have you here.
 
